@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Answers:
+-No one;
+-Nowhere;
+-Who wants;
+-Who wants;
+-What you want;
+-alexcostan553@gmail.com;
+-To help me;
+-No hidden facts
